@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Pragadeeshwar K  
+# 👋 Hi, I'm Anas s  
 
 🎓 MSc Software Systems | 💻 Aspiring Software Engineer | 🎬 Future Filmmaker  
 
